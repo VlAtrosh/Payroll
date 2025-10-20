@@ -104,6 +104,4 @@
 ![avatar_1214993679](https://github.com/user-attachments/assets/7455c206-896e-4138-9dbc-3d2efe468cb3)
 
 
-![a3fe01d5dd7efca70bdf565366df9900](https://github.com/user-attachments/assets/22fdfecf-c754-466a-82e5-61e17d86a0da)
-
 
