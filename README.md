@@ -46,6 +46,9 @@
 
 ![у22у](https://github.com/user-attachments/assets/3a4bddc1-fdc4-452c-a6eb-2e3a52e5d044)
 
+![Бибика](https://github.com/user-attachments/assets/f73eb44b-5644-47a0-9aeb-29c1d989b62a)
+
+
 
 ### Основные таблицы
 | Таблица | Описание |
